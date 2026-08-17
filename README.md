@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-AACJ740120HCSLRS04
-AACJ740120HCSLRS04
